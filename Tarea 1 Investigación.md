@@ -2,7 +2,7 @@
 
 ![Logo
 
-Description automatically generated with low confidence](Aspose.Words.9b9d1b8a-a954-4f44-a75c-b9000a47b610.001.jpeg)<a name="page1"></a>**ESCUELA SUPERIOR POLITÉCNICA DEL LITORAL**
+Description automatically generated with low confidence](![Aspose Words 9b9d1b8a-a954-4f44-a75c-b9000a47b610 001](https://github.com/user-attachments/assets/a8924059-6a71-4273-b640-a47174aad158))<a name="page1"></a>**ESCUELA SUPERIOR POLITÉCNICA DEL LITORAL**
 
 **FACULTAD DE INGENIERÍA MECÁNICA Y CIENCIAS DE LA PRODUCCIÓN**
 
